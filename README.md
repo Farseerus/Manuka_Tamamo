@@ -1,2 +1,2 @@
-Закреплено за игроком STEAM_0:1:437542844
-Использование другими игроками запрещено
+Dear diary, I cannot find the words to describe the pain and humiliation I experienced today. 
+My life is broken forever
